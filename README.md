@@ -1,12 +1,3 @@
-<style>
-  @import url('https://fonts.googleapis.com/css2?family=Montserrat:wght@400;700&display=swap');
-
-  /* Applique Montserrat partout */
-  body {
-    font-family: 'Montserrat', sans-serif;
-  }
-</style>
-
 *César Golab*
 
 Hey, I’m a **French guy** who literally dropped everything even my country to try living off what inspires me, in order to inspire others in turn.  
