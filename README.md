@@ -7,11 +7,9 @@ I stand for **beauty and simplicity**, **kindness**, and an **open heart**. I’
 
   I plan to post **again and again**, improve constantly, and share that journey with anyone who wants to follow this guy who’s doing his best to accomplish great things in life through beauty.
 
-#### I still would like to share some tips that guide me through my day :
+I still would like to share some tips that guide me through my day :
 
-Don’t wait to be ready to start ; Don’t fear others’ opinions, embrace them ; When you feel bad, try imagining your future self in 1 hour, 1 week, 1 month, 1 year to see if that pain is justified ; Life is unfair, but it’s still beautiful.
-
----
+*Don’t wait to be ready to start ; Don’t fear others’ opinions, embrace them ; When you feel bad, try imagining your future self in 1 hour, 1 week, 1 month, 1 year to see if that pain is justified ; Life is unfair, but it’s still beautiful.*
 
  **A quote that i really enjoy** 
 > “Men build too many walls and not enough bridges.”  
