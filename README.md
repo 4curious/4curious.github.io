@@ -1,5 +1,5 @@
 
-<u>César Golab</u>
+*César Golab*
 
 Hey, I’m a **French guy** who literally dropped everything even my country to try living off what inspires me, in order to inspire others in turn.  
 I stand for **beauty and simplicity**, **kindness**, and an **open heart**. I’m not here to sell you anything, but to help through the energy I put into what I love.
@@ -19,5 +19,5 @@ Don’t wait to be ready to start ; Don’t fear others’ opinions, embrace the
 
 ---
 
-<u>Looking forward to chatting with you, my friend.</u>  
+Looking forward to chatting with you, my friend.
 Have a **wonderful day**.  
